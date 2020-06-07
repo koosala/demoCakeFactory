@@ -12,8 +12,8 @@ Ingredients for dal makhani
 
 * 50 g butter or oil
 * 1 medium onion finely chopped
-* 2 medium tomatoes fine chopped deseeded or 100g tomato puree
-* 15 g garlic
+* 3 medium tomatoes fine chopped deseeded or 100g tomato puree
+* 15 g garlic finely chopped
 * 15 g ginger
 * 1 green chilies slit optional or hari mirch
 * Salt as needed
