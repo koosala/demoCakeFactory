@@ -64,3 +64,5 @@ Ingredients for dal makhani
 * Garnish dal makhani with butter or cream, coriander leaves & ginger
   juliennes. Serve dal makhani with naan, basmati rice, roti or jeera rice.
 
+  That makes for a tasty makhni
+
